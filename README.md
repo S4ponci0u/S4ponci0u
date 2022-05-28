@@ -1,8 +1,13 @@
 # 💫About Me :
+
 ⚡  Learning a lot of new stuff
+
 🔥  Improving my skills
+
 🧭  Traveling through the code...
+
 🍥  Watching anime too
+
 🍙  Eating variables
 
 ## 🌐Socials
